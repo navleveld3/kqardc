@@ -1,0 +1,108 @@
+AI 短剧剧本生成工具 影视内容创作效率大幅提升<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E9%87%91%E6%B4%8B2%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E6%AE%BFCC)PWG.html
+<br><br>
+城市老火车站改造文创空间 旧建筑焕发全新活力<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%A7%E9%BE%992%E7%A5%9E%E6%9C%BA%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80(435.999)q.GkEiC
+<br><br>
+家用净水机升级 大通量滤芯成市场主流<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E6%91%A9%E8%87%A35%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E7%94%B8CC)XoL.html
+<br><br>
+新能源消纳监测数据发布 风光弃电率维持低位<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%A5%9E%E6%9C%BA%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%20%20%20(9XK%E7%82%B9CC).EySwQ
+<br><br>
+乡村国产平板发力办公场景 搭配手写键盘生产力提升<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E6%B2%B3%E5%86%85%E4%B8%80%E5%88%86%E5%BD%A9%E4%BA%94%E6%98%9F%E6%8C%82%E6%9C%BA(9XK%E6%AE%BFCC)E5p.html
+<br><br>
+国产大模型开启出海进程 面向海外企业提供技术服务<br>| 来源：https://www.baidu.com/BAIDU?CL=56&WORD=%E5%8D%8E%E5%AE%87%E6%B3%A8%E5%86%8C%EF%BB%BF(435999)q
+<br><br>
+乡村冷洗模式普及 保护轻薄夏季服饰面料<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E4%BA%BF%E4%BD%93%E8%82%B2%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95(9XK%E7%82%B9CC)A1F.html
+<br><br>
+国产存储芯片产能提升 NAND 闪存紧缺有望缓解<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99(9XK%E6%AE%BFCC)Opj.html
+<br><br>
+老年助餐点增加夏季凉食 适配老年群体饮食口味需求<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%BC%8E%E7%82%B9%E6%8B%9B%E5%95%86%EF%BB%BF(435999)qMTk.html
+<br><br>
+汽车外观内饰环保材料普及 降低车内异味污染源<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E4%BA%8B2%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%EF%BB%BF(435999)qySw.html
+<br><br>
+闲置物品线上交换社群兴起，物物交换减少购买<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E9%A1%BA%E8%82%A1%E4%B8%9C(435%2F999)qbfI.html
+<br><br>
+混动专用发动机技术迭代 进一步降低车辆燃油消耗水平<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E5%8D%9A%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E5%BA%97CC)nuB.html
+<br><br>
+乡村衣物烘干机提升南方家庭体验 告别梅雨季晾不干<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%BD%A9%E5%B9%B3%E5%8F%B0(9XK%E5%9E%ABCC)jr8.html
+<br><br>
+全球高温热浪频发，防暑科普面向各国公众普及<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A19%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95(435.999)qyCc.html
+<br><br>
+风电运维市场规模增长 存量风电场维护需求释放<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=AG%E6%A9%AB%E5%B3%B0%E9%9B%86%E5%9B%A2%E5%A8%B1%E4%B9%90(9XK%E7%94%B8CC)dNO.html
+<br><br>
+AI 智能景区票务系统 门票预约入园更顺畅	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%BC%8E%E6%B1%873%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7%EF%BB%BF(435999)q015.html
+<br><br>
+夏日登山选择清晨傍晚时段，避开正午暴晒高温<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%BA%A2%E6%A1%83%E5%A8%B1%E4%B9%90%E8%AE%A1%E5%88%92(9XK%E5%BA%97CC)eFw.html
+<br><br>
+国产运动服饰海外扩张，高性价比抢占海外市场<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%9A%E5%8D%9A%E7%94%B5%E7%AB%9E%E7%BD%91%E9%A1%B5%E7%89%88(9XK%E7%94%B8CC)zq4.html
+<br><br>
+国产独立漫画出版物销量上涨 线下漫画展人气高涨<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%9B%9B%E6%96%B9%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86(435.999)qeMk.html
+<br><br>
+平价软装产品销量走高，租房群体带动家居消费<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E4%BA%AC%E8%BE%B0%E5%A8%B1%E4%B9%90%E7%99%BB%E5%85%A5(9XK%E7%82%B9CC)X5g.html
+<br><br>
+驱蚊香薰灯驱蚊手环新品上市，多手段组合防蚊虫<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%91%AB%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0(9XK%E7%82%B9CC)muB.html
+<br><br>
+国产工程机械出海，大量工程装备销往全球各地<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E8%B5%A2%E5%92%965%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95(9XK%E7%94%B8CC)DLb.html
+<br><br>
+国产火车站提升暑运服务 增设候车座椅饮水点位<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8D%8E%E6%B6%A62%E5%A8%B1%E4%B9%90%E5%AE%98%E7%BD%91(9XK%E5%9E%ABCC)mtA.html
+<br><br>
+具身智能机器人迎来技术突破 环境感知能力取得新进展<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BE%AE%E4%BF%A1%E6%89%AB%E7%A0%81%E5%8A%A0%E6%8B%BF%E5%A4%A728%E7%BE%A4(435%2F999)q4E5.html
+<br><br>
+天文馆暑期 亲子科普参观火爆<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B1%87%E5%AF%8C%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3(9XK%E5%9E%ABCC)gT4.html
+<br><br>
+国产数字文创出海，数字艺术作品走向国际市场<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E7%BE%8E3%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%BC%80%E6%88%B7(435%2F999)qWkA.html
+<br><br>
+家用感应家居小件热销 提升居家生活便捷体验<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E7%90%83%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC)4op.html
+<br><br>
+冷冻预制凉菜供给丰富 降低家庭夏日做饭负担<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%95%BF%E5%BE%81%E5%BC%80%E6%88%B7(9XK%E5%9E%ABCC)9gn.html
+<br><br>
+AI 智能能源全区域协调发展 能源布局更科学合理	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E8%A1%8C6%E7%9B%B4%E5%B1%9E(435.999)qnor.html
+<br><br>
+AI 模具检测技术落地制造业 有效减少产品不良率水平<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86(435.999)qj04.html
+<br><br>
+二手图书循环 阅读消费更环保经济	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC)muA.html
+<br><br>
+宠物保险投保量上涨 行业理赔流程有待持续完善<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%9E%81%E6%82%A6%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF%EF%BB%BF(435999)q9gn.html
+<br><br>
+AI 智能文化馆服务系统 文化活动参与更便捷	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%98%9F%E8%BE%89%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E4%BB%A3%E7%90%86(9XK%E5%9E%ABCC)1SL.html
+<br><br>
+乡村采摘园暑期迎客，瓜果采摘体验带动乡村游<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%8F%8C%E8%B5%A2%E5%A8%B1%E4%B9%90(435.999)qRSV.html
+<br><br>
+储能电站运维要点科普 存量储能电站如何降低故障概率<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%90%E9%B8%A32%E7%99%BB%E9%99%86(9XK%E5%9E%ABCC)T3k.html
+<br><br>
+乡村暴雨驾车出行科普<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B1%87%E5%AF%8C%E5%A8%B1%E4%B9%90%E4%BB%A3%E7%90%86(435.999)qhSS.html
+<br><br>
+地方特色方便速食走红，把地域美食搬上餐桌<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%80%9F%E7%9B%88%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80%EF%BB%BF(435999)qiZn.html
+<br><br>
+外来植物入侵防控宣传 不要随意丢弃外来植物<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%A4%A9%E4%B9%9D%E4%BB%A3%E7%90%86(9XK%E7%94%B8CC)Avv.html
+<br><br>
+共享单车科学调度，节假日保障景区居民区供给<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%BC%80%E5%BF%838%E7%9C%9F%E4%BA%BA%E5%AE%98%E7%BD%91%E7%BD%91%E5%9D%80(9XK%E5%9E%ABCC)u1I.html
+<br><br>
+AI 数字人直播带货常态化 电商营销模式迎来全新变革	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%8E%A9%E5%AE%B6%E6%97%B6%E4%BB%A32%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(9XK%E7%82%B9CC)3AR.html
+<br><br>
+水产养殖尾水治理，减少水体富营养化问题<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E8%A1%8C3%E5%A8%B1%E4%B9%90%E6%80%8E%E4%B9%88%E6%A0%B7(9XK%E5%BA%97CC)h81.html
+<br><br>
+企业落地大模型常见痛点解析 中小工厂 AI 转型避坑指南<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%B2%90%E9%B8%A32%E5%B9%B3%E5%8F%B0%EF%BB%BF(435999)qnN4.html
+<br><br>
+城市线上云游博物馆持续更新 足不出户看文物<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%81%92%E8%A1%8C6%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86(9XK%E7%82%B9CC)Ijd.html
+<br><br>
+国产高铁上新文创周边产品 铁路 IP 受到游客喜爱<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E6%8E%A8%E8%8D%90%E4%B8%80%E4%B8%AANBA%E4%B9%B0%E7%90%83%E7%BD%91%E7%AB%99(435.999)qitj.html
+<br><br>
+Title：清淡饮食养生思路
+
+现代生活节奏紧张，很多人长期久坐不动，频繁使用手机电脑，身体容易出现各种亚健康问题。想要调理身体不需要昂贵产品，坚持日常微小习惯就能持续改善状态。
+久坐人群每小时起身拉伸肩颈腰背，简单活动促进血液循环，能有效预防颈椎腰椎酸痛，适合办公室人群日常操作。
+定期开窗通风，及时清洗床品、擦拭家具，干净整洁的居家环境能减少灰尘细菌，提升居住舒适度。
+现代生活节奏紧张，很多人长期久坐不动，频繁使用手机电脑，身体容易出现各种亚健康问题。想要调理身体不需要昂贵产品，坚持日常微小习惯就能持续改善状态。
+现代生活节奏紧张，很多人长期久坐不动，频繁使用手机电脑，身体容易出现各种亚健康问题。想要调理身体不需要昂贵产品，坚持日常微小习惯就能持续改善状态。
+久坐人群每小时起身拉伸肩颈腰背，简单活动促进血液循环，能有效预防颈椎腰椎酸痛，适合办公室人群日常操作。
+生活压力大时不要压抑情绪，出门散步、听舒缓音乐都能释放负面情绪，平稳心态对身心健康至关重要。
+长时间看电子屏幕会让眼部肌肉持续紧绷，建议每隔四十分钟休息五分钟，远眺绿植，配合轻柔眼周按摩，减少干涩酸胀。
+夜市食品安全抽检常态化 守护街边餐饮消费安全<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E7%99%BE%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(435.999)qkr8.html
+<br><br>
+开源大模型快速发展 企业选用开源模型需要注意哪些点<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A115%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80(9XK%E5%BA%97CC)ki9.html
+<br><br>
+溯溪安全科普 远离未开发危险区域<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E5%AE%89%E4%BF%A113%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(435%2F999)qOOP.html
+<br><br>
+夏季肠胃不适 冷饮过量危害健康	<br>| 来源：http://www.cubn.com.cn/index.php?s=portal&c=search&keyword=%E9%A1%BA%E7%9B%88%E7%99%BB%E5%BD%95(435.999)qqBr.html
+<br><br>
+汽车儿童安全座椅科普 提升乘车儿童防护意识<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E9%A1%BA%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(435%2F999)q.c6a4Y
+<br><br>
